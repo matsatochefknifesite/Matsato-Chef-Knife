@@ -4,10 +4,15 @@ Combining traditional Japanese craftsmanship with innovative design, represents 
 
 
 ➢ Product Name – Matsato Chef Knife
+
 ➢ Side-Effects — NA
+
 ➢ Availability — Online (Exclusive Offers on Official Website)
+
 ➢ Rating — ★★★★★
+
 ➢Where To Buy - Official Website
+
  
 
 
